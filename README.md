@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Zito333
-- 👀 - With elegance and simplicity, always passionate about sustainability and circular economy, I dedicate my life to creating innovative solutions to environmental challenges.
+- 👀 - With elegance and simplicity always passionate about sustainability and circular economy, I dedicate my life to creating innovative solutions to environmental challenges.
 - 🌱 - founder and creator of Fazenda Urbana Metrópoli, an innovative project that demonstrates how urban agriculture and the circular economy can coexist in harmony.
 - 💞️ - I seek to strengthen collaboration between different sectors of society, such as companies, institutions, governments and the community in general, to build a greener and more prosperous future for everyone.
 - 📫 How to reach me ...You can contact Gaia through the Fazenda Urbana Metrópoli website, or through its social networks:
